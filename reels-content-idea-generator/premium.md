@@ -62,7 +62,7 @@ Tailored bundles for:
 ---
 
 ## 🧠 Why This Premium Pack Exists
-Creators don’t struggle with editing, lthey struggle with *ideas.*
+Creators don’t struggle with editing, they struggle with *ideas.*
 
 This premium pack solves:
 - creative block  
