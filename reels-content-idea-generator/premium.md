@@ -128,5 +128,4 @@ Respect the craft. Support the creator.
 ---
 
 ## 💬 Need Custom Prompts?
-If you want niche-specific prompt packs (travel, product brands, food chains, influencers etc.),  
-message me on LinkedIn - I offer custom packs too.
+If you want niche-specific prompt packs (travel, product brands, food chains, influencers etc.), message me on LinkedIn - I offer custom packs too.
