@@ -2,8 +2,7 @@
 
 Welcome to the premium side of the internet, a curated vault of 500+ high-impact prompts, hooks, captions, scripts, and creator tools built to take your Reels, Shorts, and TikToks from "just vibes” to “this actually slaps."
 
-This pack is crafted for creators who want structure, speed, and ideas  
-that don’t feel recycled every second on the timeline.
+This pack is crafted for creators who want structure, speed, and ideas that don’t feel recycled every second on the timeline.
 
 ---
 
